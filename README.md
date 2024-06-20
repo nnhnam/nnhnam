@@ -1,1 +1,1 @@
-💻 Software Engineering Apprentice @ Google 💻
+💻 Software Engineer @ Google 💻
